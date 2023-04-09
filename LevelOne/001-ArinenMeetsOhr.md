@@ -1,0 +1,3 @@
+## 001 - Arinen Meets Ohr
+  Life in the castle never seemed to change. It was Arinen's birthday, one of the important ones. Her parents were in early discussions to have her wed to new Duke over the fief that bordered their lands to the east. The old Duke had passed early last winter from breathing complications. Since then, his son had been growing into the role. His mother, the Duchess, still ruled officially, but had recently been stepping back to allow the new Duke to grow.
+  A sword sliced through the air over her head, and the little hairs that had become freed from their braid breezed about, snapping her attention back from her reverie.
