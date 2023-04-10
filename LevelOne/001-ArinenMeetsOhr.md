@@ -14,10 +14,24 @@ He pressed the attack, closing the gap between them with a backhand horizontal s
 
 She let him come, blow after blow, he was relentless. When the blows came from her left, she absorbed it with her shield. If it came from the right, she deflected it with her short sword. Usually, Faxanadu taught her with repetition. He would attack with the same patterns over and over, allowing her to learn the rhythm and gain confidence in her defenses. Now, though, he varied his attacks. She rushed to string her defenses together in some way that would allow to her break an opening in his repertoire.
 
-Arinen let her anxiety for her destiny fall away, existing in the moment. In the fight. Blow after blow rained down on her. Faxanadu was angry. His irritation at her privileged attitude had him trying to knock the sense into her. It was working. His blows were brutal. If she performed an iota below her ability, she was going to need a cleric. The last time that happened, her father had broken Ser Faxanadu's nose. Behind cosed doors, however, the Baron adamantly defended his old friends methods to her mother. The time before that, Faxanadu's eye had been blackened, but an ultimately similar outcome. She recognized this would be another one of those moments if she didn't step up her game.
+Arinen let the anxiety for her destiny fall away, existing in the moment; in the fight. He was legitimately angry. His irritation at her privileged attitude caused him to try to focibly drive some sense into her. It was working. The blows were brutal, battering her left and right. If she performed an iota below her ability, they were going to need a cleric. The last time this happened, her father had broken Ser Faxanadu's nose. The time before that, he received a black eye. Behind cosed doors, however, the Baron adamantly defended his old friend's method to his wife. Arinen needed to improve, and quickly, if she was going to avoid that fate.
 
-She began working her defense so that the next incoming strike would be one she had decided on, not Faxanadu. There always were attack patterns, but sometimes, you needed to help your opponent establish them. She felt a twinge of guilt that she was about to maneuver him in such a way that left his dead arm holding his shield unable to defend against her thrust after she ducked his blow instead of blocking it. 
+She began working her defense so that the next incoming strike would be one she had decided on, not Faxanadu. There always were attack patterns, but sometimes, you needed to help your opponent establish them. She felt a twinge of guilt that she was about to maneuver him in such a way that left his dead arm holding his shield unable to defend against her thrust after she ducked his blow instead of blocking it. As his blade whistled over her, she side-stepped in close and began her thrust that would sneak just behind his shield, and into his kidneys. A fight ender, as Faxanadu like to call such a strike. Or, it would be if not for the practice blade and chainmail.
 
-"Mood is for feasting and fucking...", he began.
+It took a few moments for Arinen to realize the fight was over. It took a few more for her to work out how she had ended up flat on her back, staring at the ceiling. When she ducked his swing, rather than attempt to rein it in and reset his stance, as she anticipated, he maintained his follow-through, allowing his trailing foot to swing around and meet her chin as she stepped in. His face floated into her view, "Get up. You can lay about when you are dead."
+
+She scrambled to her feet, resuming her fighting stance. Or something approximating one. Faxanadu motioned for her to relax. "What have I told you about telegraphing your intentions? When you make plans in a fight, you reveal them with your body language. Act on instinct, trust the memories stored in your muscles to perform as needed." He finished doffing the training gear.
+
+She doffed hers likewise. "How can I build the muscle memory for such maneuvers, if not in training?" She was still feeling petulant about her circumstances.
+
+He laughed, "One of the true joys of my position is being able to occassionally kick wise ass little girls in the mouth. You know the answer, I've told you often enough."
+
+She smiled. He really was an effective trainer. "Envision the motions in my minds eye to familiarize myself with the possibilities. Incorportate the motions into my individual katas. Allow the maneuvers into the fight when my body is ready. I wasn't ready."
+
+"Your rose to meet my aggression well though. It was a clever attack. Work at that one." Then he circled back to the original conversation, "Moods are for feasting and fucking...", he began.
 
 "...not for fighting." Arinen adjusted her posture, standing now with dignity instead of exhaustion. Faxanadu never let her drop the royal facade for long. He claimed that conflicts began long before blades cleared sheathes, and ones demeanor can mitigate the need for violence in most cases. She preferred to avoid conflict by avoiding assholes. Clearly, Faxanadu loved doling out lessons.
+
+As they walked the castle passageways towards her quarters, he pressed her for more details. "What is this all-consuming concern you are wrestling with?"
+
+
