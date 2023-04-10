@@ -1,4 +1,4 @@
-## Arinen Comes of Age
+## The Fighting Mood
 
 Life in the castle never changed. The expecations and routines bled one day to the next, and today was no different. It was no small wonder the nobility consumed so many barrels of mead every year. There was, however, changes on the horizon. It was Arinen's birthday, one with a significant milestone. Having survived the requisite number of seasons in her lifetime, the proverbial "powers-that-be", who inexplicably felt entitled to her destiny, decided she was a woman now. Politically, anyway. Her parents were starting discussions to have her wed to the boy who recently became Duke over the fiefdom that bordered their lands to the east. The old Duke had passed early last winter from breathing complications. Since then, his son had been growing into the role. His mother, the Duchess, still ruled officially, but had recently been stepping back to allow the new Duke to grow.
 
