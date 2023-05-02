@@ -33,3 +33,7 @@ She smiled. He never missed a trainable moment. "Envision the motions in my mind
 Straightening her posture, she finished, "...not for fighting." Faxanadu nodded. He never let her drop the highborn facade for long. He believed that conflicts began long before blades cleared sheaths, and one's demeanor can mitigate the need for violence in most cases. She was of the persuasion to avoid conflict by avoiding assholes, but clearly, Faxanadu loved doling out lessons.
 
 He pressed her for more details as they walked the passageways towards her quarters. "Really Ari. Where were you in there?"
+
+Arinen chewed her lip. She couldn't meet his gaze, but confessed. "I've been thinking a lot about my future with the young Duke."
+
+He frowned, "What about it? He has been
