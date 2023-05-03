@@ -44,4 +44,12 @@ Reaching her rooms, they faced each other. She continued, "We are unbalanced. Th
 
 Faxanadu chuckled and drew her close in a warm embrace. He kissed her forehead lovingly. "My sweet, wise, Ari. You never could abide being told what to do...I have had similar concerns. Not for you, like this, but for the kingdom. It does feel a bit like giving it all away." He pulled away and brushed away the hair that wasn't falling into her face. "The world moves and we make our best choices amidst the waves. While the ladies do their best with your face, consider the best argument you can bring before your father to delay this union until our kingdoms can join on equal footing."
 
-Before she closed the door behind her, she turned back to him. "Don't let Daddy punish you too permanently."
+Before she closed the door behind her, she turned back to him. "Don't let Daddy punish you too permanently when you are sparring."
+
+Faxanadu's low growl of a laugh reverberated off the stone passageway. "I always make that old swashbuckler dance extra hard for it. He probably wishes he didn't have to appease that sorceress mother of yours." Arinen smiled. She had always found the playfulness the three friends shared both comforting. She hoped that one day she could find friends as solid and loyal as they were for each other.
+
+With a curt dip of his head, he turned and strode toward the kitchens.
+
+
+The Conversation with Father
+
