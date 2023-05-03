@@ -38,7 +38,7 @@ Arinen chewed her lip. She couldn't meet his gaze, but confessed. "I've been thi
 
 He frowned, "What about it? He has been a good friend to you for years. Has something happened between you?"
 
-She shook her head with a shrug. "No, nothing like that. He is wonderful, and it is a smart match. I just feel somehow, resistant. As if, I am merely the deed to this kingdom that he must accept in order to rule it."
+She shook her head with a shrug. "No, nothing like that. He is wonderful, and it is a smart match. I just feel...resistant, somehow. As if, I am merely the deed to this kingdom that he must accept in order to rule it."
 
 Reaching her rooms, they faced each other. She continued, "We are unbalanced. The rumors say he is quite the politician, already building respect in nearby courts. I'll not be arm candy the rest of my life, boring as it may be."
 
@@ -46,10 +46,6 @@ Faxanadu chuckled and drew her close in a warm embrace. He kissed her forehead l
 
 Before she closed the door behind her, she turned back to him. "Don't let Daddy punish you too permanently when you are sparring."
 
-Faxanadu's low growl of a laugh reverberated off the stone passageway. "I always make that old swashbuckler dance extra hard for it. He probably wishes he didn't have to appease that sorceress mother of yours." Arinen smiled. She had always found the playfulness the three friends shared both comforting. She hoped that one day she could find friends as solid and loyal as they were for each other.
+Faxanadu's low growl of a laugh reverberated off the stone passageway. "I always make that old swashbuckler dance extra hard for it. He probably wishes he didn't have to appease that sorceress mother of yours." Arinen smiled lovingly. She had always found the playfulness the three friends shared both comforting. She hoped beyond hope that she could find friendship as solid and loyal as theirs.
 
 With a curt dip of his head, he turned and strode toward the kitchens.
-
-
-The Conversation with Father
-
