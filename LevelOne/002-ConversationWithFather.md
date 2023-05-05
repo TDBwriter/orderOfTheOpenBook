@@ -10,7 +10,7 @@ Arinen didn't pull away from the crisp line drawing. Instead, she shifted her we
 
 Now she sat bolt upright. "It is?" Frowning, she said, "Are they giants?"
 
-"Possibly, I suppose, though with exception to their size, they are not all that different from us. Are you read that one again?"
+"Possibly, I suppose, though with exception to their size, they are not all that different from us. Are you going to read that one again?"
 
 "The pictures in this one are so much better than any of your other journals."
 
@@ -30,7 +30,7 @@ Coolness settled between them as the heartbeats grew into breaths. There was no 
 
 The Duke, her father, Daddy, finished the thoughts he had begun, placed the quill into its resting place. Leaning back into his chair, his voice slipped between the ribs of silence like a rapier, "Why did you wait so long to bring this to my attention?"
 
-Arinen loved her daddy. He always understood. Always respected her. She knew now more than ever that he could help her navigate this emotionally fraught political puzzle for the best possible outcome. "Oh, Daddy," she gushed with relief. "I hope your negotiations will still be of value. Rufus has always been my good friend, and he is a good man. He will care for our people, and his, with all his heart, I have little doubt. I mean to say that I do not want to marry him just yet. However, I am hesitiant because lately he has gained political experience and power. Our joining now would leave me as little more than arm candy in the eyes of our other neighbors."
+Arinen loved her daddy. He always understood. Always respected her. She knew now more than ever that he could help her navigate this emotionally fraught political puzzle for the best possible outcome. "Oh, Daddy," she gushed with relief. "I hope your negotiations will still be of value. Rufus has always been my good friend, and he is a good man. He will care for our people, and his, with all his heart, I have little doubt. I mean to say that I do not want to marry him just yet. However, I am hesitant because lately he has gained political experience and power. Our joining now would leave me as little more than arm candy in the eyes of our other neighbors."
 
 The horror at this possibility being spoken aloud flashed through his eyes. Evidently this particular fear was familiar to him. His chest expanded and his nostrils flared as he breathed in his thoughts. Pride replaced the fear as he expelled these emotions out through tight lips. This ability to master his emotional response hadn't passed naturally to Arinen, but she strove to emulate it, quite unsuccessfully. It may have been one of her most loved traits that he had.
 
@@ -44,12 +44,12 @@ His eyes did not blink or waver from hers. "What do you propose?"
 
  Now, he allowed some skepticism to show. "Do you think Rufus, or more accurately, his mother would accept this worldwide library tour? They will assume you are courting royals to your side before the marriage."
 
- Slowly, she nodded as if she were considering this revelation. She paced over to the window and drank in the view. "I would expect so, but that is only a liability for them if we do not marry. Unified, it strengthens our people in the eyes of the nobility. In fact, inserting my influence into the court nobility is my actual goal. I will of course do the research, because it is prudent, and because I desperately crave the understanding, but my deception in this is not for the Baron or his mother." She turned toward her father. A sliver of sunshine outlined her in stark regality. "None of the comfortable, luxuriant, soft families of the Northern kingdoms will be wary that a dirty Southern Duchess is courting their scholars nor winning the respect of their Weapon Masters."
+ Slowly, she nodded as if she were considering this revelation. She paced over to the window and drank in the view. "I would expect so, but that is only a liability for them if we do not marry. Unified, it strengthens our people in the eyes of the nobility. In fact, inserting my influence into the court nobility is my actual goal. I will of course do the research, because it is prudent, and because I desperately crave understanding, but my deception in this is not for the Baron or his mother." She turned toward her father. A sliver of sunshine outlined her in stark regality. "None of the comfortable, luxuriant, soft families of the Northern kingdoms will be wary that a dirty Southern Duchess is courting their scholars nor winning the respect of their Weapon Masters."
 
 He leapt to his feet and quickly crossed the room to grip her in one of the mighty hugs that she treasured. Muffled in his chest, she concluded her thoughts with the core of truth that she had reserved. "Daddy, I want to see the world before I must settle into a boring political existence."
 
-"Oh, I know, Lady." He breathed her curls in deeply and held her tight enough to restrict her breathing. After a few moments he released her and held her at arms length, looking into her eyes. "I am so proud of the wisdom you carry. You will lead these people so much better than us. Let us make the necessary arrangements immediately. Ari, please, allow me the courtesy of breaking the news to your Mother and Faxanadu?"
+"Oh, I know, Lady." He breathed her curls in deeply and held her tight enough to restrict her breathing. After a few moments he released her and held her at arm's length, looking into her eyes. "I am so proud of the wisdom you carry. You will lead these people so much better than us. Let us make the necessary arrangements immediately. Ari, please, allow me the courtesy of breaking the news to your Mother and Faxanadu?"
 
 "Yes, Daddy." She planted a kiss on his cheek. "Will you tell them soon? What will you say?"
 
-"Of course, soon. There is no time to delay with the spring melt opening the passes. I will talk with Mom tonight after...she is relaxed...Faxanadu after I finish this contract," he gestured at his desk. He smiled like giddy child, "I can't wait to see how excited he is to be going back on the road!"
+"Of course, soon. There is no time to delay with the spring melt opening the passes. I will talk with Mom tonight after...she is relaxed...Faxanadu after I finish this contract," he gestured at his desk. He smiled like a giddy child, "I can't wait to see how excited he is to be going back on the road!"
