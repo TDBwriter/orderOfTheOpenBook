@@ -44,6 +44,6 @@ Faxanadu chuckled and drew her close in a warm embrace. He kissed her forehead l
 
 Before she closed the door behind her, she turned back to him. "Don't let Daddy punish you too permanently when you are sparring."
 
-Faxanadu's low growl of a laugh reverberated off the stone passageway. "I always make that old swashbuckler dance extra hard for it. He probably wishes he didn't have to appease that sorceress mother of yours." Arinen smiled lovingly. She had always found the playfulness the three friends shared both comforting. She hoped beyond hope that she could find friendship as solid and loyal as theirs.
+Faxanadu's low growl of a laugh reverberated off the stone passageway. "I always make that old swashbuckler dance extra hard for it. He probably wishes he didn't have to appease that sorceress mother of yours." Arinen smiled lovingly. She had always found the playfulness the three friends shared to be comforting. She hoped beyond hope that she could find friendship as solid and loyal as theirs.
 
 With a curt dip of his head, he turned and strode toward the kitchens.
