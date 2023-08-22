@@ -22,7 +22,7 @@ Scrambling to her feet, she resumed her fighting stance. Or something approximat
 
 Gingerly, she doffed her gear as well. "How can I build muscle memory for such maneuvers, if not in training?" Clearly, being concussed had not dissipated the cloud of petulance shrouding her today.
 
-He smiled wide, ""Also, you are zero for two with maneuvers that assume my strikes are uncontrollable. One of the purest pleasures my lot has afforded me is that, occasionally, I get to kick wise ass girls in the mouth." He paused to allow room for appreciation of his wit. Just as it was becoming with child, he reminded her, "How does one build muscle memories?"
+He smiled wide, "Also, you are zero for two with maneuvers that assume my strikes are uncontrollable. One of the purest pleasures my lot has afforded me is that, occasionally, I get to kick wise ass girls in the mouth." He paused to allow room for appreciation of his wit. Just as it was becoming with child, he reminded her, "How does one build muscle memories?"
 
 She smiled. He never missed a trainable moment. "Envision the motions in my mind to explore the possibilities. Incorporate the motions into my daily kata. Allow the maneuvers into the fight when my body demands them." Arinen mustered her dignity, "I wasn't ready."
 
@@ -38,7 +38,7 @@ He frowned, "What about it? He has been a good friend to you for years. Has some
 
 She shook her head with a shrug. "No, nothing like that. He is wonderful, and it is a smart match. I just feel...resistant, somehow. As if, I am merely the deed to this kingdom that he must accept in order to rule it."
 
-Reaching her rooms, they faced each other. She continued, "We are unbalanced. The rumors say he is quite the politician, already building respect in nearby courts. I'll not be arm candy the rest of my eventless life."
+Reaching her rooms, they faced each other. She continued, "We are unbalanced. The rumors say he is quite the politician, already building respect in nearby courts. I would be just a bearer of heirs the rest of my eventless life."
 
 Faxanadu chuckled and drew her close in a warm embrace. He kissed her forehead lovingly. "Sweet, wise, Ari. You never could abide being told what to do...I have had similar concerns. Not for you, in this way you mention, but for the kingdom. It does feel a bit like giving it all away." He pulled away with a wide smile and brushed away the hair that wasn't actually falling into her face. "The world moves and we make our best choices amidst the waves. Go prepare for your day, and while the ladies do their best with your face to keep me out of trouble, consider the what arguments you might bring before your father that could delay this union until the kingdoms can join on equal footing."
 
