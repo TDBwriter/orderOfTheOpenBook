@@ -1,20 +1,20 @@
-Arinen was surprised at how soft the bound leather book felt as she caressed the fresh find she had pulled from the top shelf in her father's immaculate study. The title, Alpine Tribes, was branded onto the spine, as was his custom with all his books. She'd read this one twice before, but it was one of her favorites. As far as content goes, it was mildly boring, seeing as how she had lived in this region her whole life. It was the pictures her father had drawn that were remarkable to her. She moved to the chaise under the huge window overlooking the open air market on the shores of Lake Shalaal. Rifling the pages absently, the smell of the mountains reveling in spring stopped her at one drawing in particular. 
+Arinen reached for a familiar leather bound book on a top shelf of her father's study. The title, Alpine Tribes, was branded onto the spine, as was his custom with all his books. She had read this one twice before. It was one of her favorites. As far as subject matter goes, it was short on fresh details, seeing as how she had lived in this region her entire life. It was the illustrations her father had drawn that were always returned to it for. Moving to the chaise under the huge window overlooking the open air market on the shores of Lake Shalaal, she rifled through the pages absently, the smell of the mountains reveling in their spring bringing the images to life and stopping her at one in particular. 
 
-Relaxing into the cushions, she allowed herself to be transported into the scene. Thin vegetation placed it high up in the hills, somewhere just above the treeline. A lone tree in the foreground stood out among the few mountain peaks in view. It was squat, but stout, sprouting thick branches wide in all directions. To her, this tree appeared to hold up the sky while rays of cool sunshine pressured it to crawl back down the slope to be among its brethren. Nestled in the crook of a low branch, lounging much as Arinen was now, a girl basked in the sunlight watching as a line of people marched along the ridgeline. Doubtless a tribe migrating with the herds. Everyones hair was windswept and leaves swirled in eddies among the boulders. The idea of chill fall winds sent a shiver up Arinen's spine despite the warm breeze floating in through the open window.
+Relaxing into the cushions, she allowed herself to be transported into the scene. Thin vegetation placed it high up in the hills, somewhere just above the treeline. A lone tree in the foreground stood out among the few mountain peaks in the frame. It was squat, but stout, sprouting thick branches wide in all directions. To her, this tree appeared to hold up the sky while rays of cool sunshine pressured it to crawl back down the slope to be among its brethren. Nestled in the crook of a low branch lounging much as Arinen was now, a girl basked in the sun, watching as a line of people marched along the ridgeline. Doubtless a tribe migrating with the herds. Everyone's hair was windswept and leaves swirled in eddies among the boulders. The idea of chill fall winds sent a shiver up Arinen's spine despite the warm breeze floating in through the open window.
 
 Duke Glittergem looked up from his piles of paperwork when he heard her small gasp. "What is that you have, Lady?"
 
-Arinen didn't pull away from the crisp line drawing. Instead, she shifted her weight around to settle deeper into the cushions. Knowing he wouldn't have any trouble identifying the book from the question she wanted to ask, she ignored his. "Who is this little girl, Daddy? The one in the mountain tree watching the tribe climbing single file?"
+Arinen didn't withdraw from the crisp line drawing. Instead, she shifted her weight around to settle deeper into the cushions. Knowing he wouldn't have any trouble identifying the book from the question she wanted to ask, she ignored his. "Who is this little girl, Daddy? The one in the mountain tree watching the tribe climbing single file?"
 
-"That is not a little girl. That is Mommy. She only looks so small because those people are positively huge."
+"That is not a little girl. That is Mommy. She only looks small because the tribe people are huge."
 
 Now she sat bolt upright. "It is?" Frowning, she said, "Are they giants?"
 
-"Possibly, I suppose, though with exception to their size, they are not all that different from us. Are you going to read that one again?"
+"Possibly, I suppose, though with exception to their size, they are remarkably similar to us. Why do you want to read that one again?"
 
 "The pictures in this one are so much better than any of your other journals."
 
-"Naturally. It is my favorite as well. It was one of the calmest periods of my, our, entire lives. Once we learned we had finally taken with child, we quit the road and dedicated our energies to leadership over this territory. We thought it wisest to ease into settled life by exploring the lands and breaking bread with people who also called it home. We took our time and I put a lot of time into that study. Before, life on the road meant most sketches in my journals were hasty. In fact, that is our first family portrait."
+"Naturally," he chuckeled. "It is my favorite as well. It was one of the calmest periods of my, our, entire lives. Once we learned we had finally taken with child, we quit the road and dedicated our energies to leadership over this territory. We thought it wisest to ease into settled life by exploring the lands and breaking bread with all the people who also called it home. We took our time and I put a lot of time into that study. Before, life on the road meant most sketches in my journals were hasty. In fact, that is our first family portrait."
 
 "Really?! Where am I?" She analyzed it closer looking for any babies and in the column for her father.
 
@@ -22,7 +22,7 @@ Now she sat bolt upright. "It is?" Frowning, she said, "Are they giants?"
 
 Arinen giggled, "Wonderful, Daddy." 
 
-She turned to the title page and he resumed his writing. It read "Alpine Tribes of Elipan: Customs, Culture and Philosophy". As she started reading the first page, she began to feel the beginnings of a plan take shape in her mind. She sat up to face her father, mustering an adulthood she never imagined could ever be hers. 
+She turned to the title page and he resumed his work. It read "Alpine Tribes of Elipan: Customs, Culture, and Philosophy". As she started reading the first page, she finally began to feel a plan take shape in her mind. She sfaced her father, affecting an adultification she never imagined growing into. 
 
 "Daddy, I do not want to marry Rufus."
 
