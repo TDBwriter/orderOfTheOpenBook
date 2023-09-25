@@ -10,3 +10,8 @@
 
 ## Self-published/Blogs
 *
+
+## Lists of Orgs to look at
+* [24 Short Story Publishers that Pay $500+ Per Story](http://www.freedomwithwriting.com/freedom/uncategorized/19-short-story-publishers-that-pay-500-per-story/)
+* [Best Flash Fiction Competitions](https://jerichowriters.com/best-flash-fiction-competitions/)
+* 
