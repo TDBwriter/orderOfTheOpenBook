@@ -16,7 +16,7 @@ Her anxiety fell away, releasing her into this moment; fully in the fight.  Blow
 
 Average fighters naturally developed attack patterns, but experienced opponents required manipulation. She worked to limit his choices and develop an exploit. By pulling her parry and ducking his sword, his momentum would carry his shield too far to defend a kidney thrust. A fight-ender, if not for training equipment.
 
-Patiently, Faxanadu waited for Arinen to realize the fight had ended. From her back she fumbled to bring her consciousness to the present. Again,he maintained follow-through, trailing foot rather than shield to meet her chin. His face coalesced, "Get up," he said tenderly. "There is enough lying about in death.” He had already changed over. "What have I told you about telegraphing your intentions? Mental plans are revealed in body language. Trust the memories trained into your muscles."
+Patiently, Faxanadu waited for Arinen to realize the fight had ended. From her back she fumbled to bring her consciousness to the present. Again, he maintained follow-through, trailing foot rather than shield to meet her chin. His face coalesced, "Get up," he said tenderly. "There is enough lying about in death.” He had already changed over. "What have I told you about telegraphing your intentions? Mental plans are revealed in body language. Trust the memories trained into your muscles."
 
 Gingerly, she doffed her gear. "How can I build muscle memory for such maneuvers, if not in training?" Being concussed did nothing to dissipate her cloud of petulance.
 
